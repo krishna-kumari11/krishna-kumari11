@@ -1,3 +1,4 @@
+![1000097472](https://github.com/user-attachments/assets/711842ce-5bc7-45df-9982-91c0d384c6b1)
 ## Hi there 👋
 
 <!--
